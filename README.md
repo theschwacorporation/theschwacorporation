@@ -1,0 +1,5 @@
+- 👽 We are @theschwacorporation
+- 👽 We are interested in questioning authority
+- 👽 We are currently learning to unlearn
+- 👽 We are looking to control small planets 
+- 👽 We will reach you
